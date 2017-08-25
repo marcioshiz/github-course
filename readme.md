@@ -1,9 +1,3 @@
 # Git Course 
 
-WILLIAN
-
-
-BIXA
-
-
-CADE A SSH
+Changing since i cant reset and upload
