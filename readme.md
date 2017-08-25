@@ -5,3 +5,6 @@ Saiba mais
 
 
 Gostou do curso?
+
+
+TREM DIFICIL KRAI
