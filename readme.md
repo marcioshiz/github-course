@@ -2,3 +2,6 @@
 
 Teste
 Saiba mais
+
+
+Gostou do curso?
