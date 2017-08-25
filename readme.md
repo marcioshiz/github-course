@@ -1,10 +1,9 @@
 # Git Course 
 
-Teste
-Saiba mais
+WILLIAN
 
 
-Gostou do curso?
+BIXA
 
 
-TREM DIFICIL KRAI
+CADE A SSH
